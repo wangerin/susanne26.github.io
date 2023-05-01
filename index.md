@@ -26,7 +26,7 @@ Penge til bl.a. kommode,  sofa bord
 
 Bog: Danmarks småøer af Jørgen Hansen
 
-Bog: Klude mindfuld strik hele året af Britta Mikkelborg på dansk
+~Bog: Klude mindfuld strik hele året af Britta Mikkelborg på dansk.~ Den har jeg fået
 
 Bog: Klude og Gæstehåndklæder af Karen Klarbæk
 
