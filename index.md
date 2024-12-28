@@ -4,9 +4,9 @@ For at der ikke giver problem med dobbelt fra ting der er købt på net, kan/ska
 
 ## Fra bauhaus
 
-[Euroboks fra Bauhaus str 60*40*32 cm med låg der kan sættes fast](https://www.bauhaus.dk/gamma-wopla-euro-opbevaringskasse-60l)
+~[Euroboks fra Bauhaus str 60*40*32 cm med låg der kan sættes fast](https://www.bauhaus.dk/gamma-wopla-euro-opbevaringskasse-60l)
 
-[2 stk ekstra låg der kan sættes fast til euroboks](https://www.bauhaus.dk/gamma-wopla-laag-topbevaringskasse-eurokasse-60x40cm-inkl-klips)
+~[2 stk ekstra låg der kan sættes fast til euroboks](https://www.bauhaus.dk/gamma-wopla-laag-topbevaringskasse-eurokasse-60x40cm-inkl-klips)
 
 ## Andet
 
@@ -22,15 +22,15 @@ Trésor skumbad og crem
 
 57 North stjernetegnsfigur Krebs fra imerco
 
-Penge til bl.a. kommode,  sofa bord
+~Penge til bl.a. kommode,  sofa bord
 
-Bog: Danmarks småøer af Jørgen Hansen
+~Bog: Danmarks småøer af Jørgen Hansen
 
 ~Bog: Klude mindfuld strik hele året af Britta Mikkelborg på dansk.~ Den har jeg fået
 
 Bog: Klude og Gæstehåndklæder af Karen Klarbæk
 
-[Køleboks til bil fra Koeletaske.dk](https://www.koeletaske.dk/soeg/590171)
+~[Køleboks til bil fra Koeletaske.dk](https://www.koeletaske.dk/soeg/590171)
 
 
 
